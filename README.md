@@ -1,4 +1,4 @@
 ## @ ciouscode
 
-S1 gardener (source: trust me)
-\n i hate luca balsa
+S1 gardener (source: trust me) 
+- i hate luca balsa
