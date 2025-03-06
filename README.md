@@ -1,7 +1,7 @@
 ## @ ciouscode
 
 S1 gardener (source: trust me) 
-my opps:
+& her opps:
 - luca balsa
 - richard sterling
 - geisha mains
